@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @isamar99
-- 👀 I’m interested in technology and arts
-- 🌱 I’m recently graduted 
+- 👀 I’m interested in technology and design
+
 - 💞️ I’m looking to the best for my future
 - 📫 you can reach me via email samarahmad308@gmail.com
 
